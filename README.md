@@ -26,6 +26,10 @@ Source: [@machineviolence on X](https://x.com/machineviolence/status/20888052595
 
 [![Expedition Van Wallpaper](assets/expedition_van-thumb.jpg)](backgrounds/expedition_van_4x3_4K.png)
 
+Source: [@machineviolence on X](https://x.com/machineviolence/status/2088675481893691837)
+
 ### Mini Truck
 
 [![Mini Truck Wallpaper](assets/mini_truck-thumb.jpg)](backgrounds/mini_truck_4x3_4K.png)
+
+Source: [@machineviolence on X](https://x.com/machineviolence/status/2088513206247436600)
